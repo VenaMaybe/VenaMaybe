@@ -1,16 +1,11 @@
 Hi, I'm Vena!
 
 How to reach meeee;
-  Gmail  : yppahhappy.com@gmail.com;
-  Discord: vena.
+* Gmail  : yppahhappy.com@gmail.com;
+* Discord: vena.
 
 About me;
-  Unprofessional whore (Wednesdays);
-  Roachphobia is real;
-  Job: Fat rat in the corner;
-  Pronouns: She/Whore/C pus pus;
-  VCV Rack Enjoyer (Msg me if u r 2!);
-  “Prepare for standards, and make it double”
+Thinking about the stars and our distant journies between them.
 
 My children, please;
   Music;
