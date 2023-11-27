@@ -1,8 +1,8 @@
-Hai, I'm Vena!
+Hi, I'm Vena!
 
 How to reach meeee;
   Gmail  : yppahhappy.com@gmail.com;
-  Discord: Vena✨#6772
+  Discord: vena.
 
 About me;
   Unprofessional whore (Wednesdays);
