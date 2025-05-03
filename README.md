@@ -5,7 +5,7 @@ How to reach meeee;
 * Discord: vena.
 
 About me;
-Thinking about the stars and our distant journies between them.
+Thinking about the stars and our distant journeys between them.
 
 My children, please;
   Music;
